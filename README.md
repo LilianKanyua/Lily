@@ -1,1 +1,1 @@
-This is my professional personal portfolio that gives more information about me.
+This is my professional portfolio that gives more information about me.
